@@ -6,6 +6,8 @@ A **Technophile** <img src="https://github.com/rudrabarad/rudrabarad/blob/master
 
 <br>
 
+📫 How to reach me [Mail](mailto:himanshuraj1209@gmail.com) <br>
+:sparkling_heart: Fun Fact - I love using Emojis 
 <!--
 **okrajh/okrajh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
